@@ -7,6 +7,7 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 
 ## Plot
 
+<<<<<<< HEAD
 Bruce woke to the sound of traffic, the sky was gray.
 After his typical breakfast of toast and an egg he left for school.
 Normally Bruce would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
@@ -14,8 +15,6 @@ Normally Bruce would have walked down Bleaker street, but today there was constr
 Being on time was not one of Bruce's specialities today would prove to be no different.
 As he moved slowly.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
-
-Bruce approached the dark and suspicious room and noticed no animal in sight. So Bruce turned around and went back to his deck and drink a cup of water. 
 Bruce had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
@@ -25,8 +24,10 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Bruce met the Unicorn King who granted him magic powers.
+Bruce met the Unicorn King and kicked the King out of the Unicorn Kingdom. Bruce became the next Unicorn King and the biggest badass in the story. How do you like them apples? Friendly Koala and Bruce became best friends.
 The end.
+
+
 
 ## Cast
 
